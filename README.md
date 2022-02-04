@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NicoleVolpe
+- 👀 I’m interested in tecnologia & livros. 
+- 🌱 I’m currently learning javascript & outros.
+- 💞️ I’m looking to collaborate on empresas que apoiem e me ensinem a crescer.
+- 📫 How to reach me  email ou whatsapp. nicole_volppe@outlook.com ou (44) 99808-0739.
